@@ -1,2 +1,2 @@
 # hello-world
-Just another time
+Just another student, who wants to play, and create bionycs.
